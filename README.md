@@ -1,1 +1,0 @@
-# NavixSport.app
